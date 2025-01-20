@@ -3,7 +3,7 @@
 **Start Your Journey to Free Xbox Gift Cards Today!**  
 In today’s gaming world, Xbox continues to be a major player, offering a wide variety of entertainment, from action-packed games to media streaming. Whether you're a dedicated gamer or just enjoy a little downtime on your Xbox console, having a gift card can enhance your experience by unlocking content, game add-ons, or subscription services. The good news is that there are several ways to score free Xbox Gift Card codes, including a $15 gift card code.
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 Before diving into the various methods, we’re offering you the chance to claim a **FREE $15 Xbox Gift Card Code** right now! All you need to do is follow a few simple steps, and your Xbox gaming experience will be upgraded instantly. (Details on how to claim your free $15 Xbox Gift Card are at the end of the article.)
 
